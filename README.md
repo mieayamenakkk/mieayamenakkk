@@ -1,5 +1,5 @@
 # 👨‍💻 About Me:
-👋 Hello, I'm rapa abdullah<br>Data Analyst | Data Spesialist | Administration Professional<br><br>I'm passionate about data, analytics, and administration. I love exploring new things and turning raw data into meaningful insights. Constantly learning and growing in the world of data!<br><br>🔹 What I Enjoy:<br><br>📊 Analyzing datasets to uncover patterns.<br><br>🛠️ Automating administrative tasks for efficiency.<br><br>💻 work with SQL, Python, Excel, BI tools, etc.).<br><br>🔹 Currently Exploring:<br><br>Data visualization (Power BI/Tableau).<br><br>Database management.<br><br>Anything data-related!<br><br>Let’s connect and collaborate!dtystztztrzrtarar
+👋 Hello, I'm rapa abdullah<br>Data Analyst | Data Spesialist | Administration Professional<br><br>I'm passionate about data, analytics, and administration. I love exploring new things and turning raw data into meaningful insights. Constantly learning and growing in the world of data!<br><br>🔹 What I Enjoy:<br><br>📊 Analyzing datasets to uncover patterns.<br><br>🛠️ Automating administrative tasks for efficiency.<br><br>💻 work with SQL, Python, Excel, BI tools, etc.).<br><br>🔹 Currently Exploring:<br><br>Data visualization (Power BI/Tableau).<br><br>Database management.<br><br>Anything data-related!<br><br>Let’s connect and collaborate!dtystztztrzrtararawe
 
 
 ## 🌐 Socials:
